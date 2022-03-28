@@ -1,4 +1,4 @@
-👋 Hi, I’m @Ildarnode
+👋 Hi, I’m irishirish88
 👀 I’m interested in crypro projects, nodes, coding
 🌱 I’m currently learning c++
 💞️ I’m looking to collaborate on new intersting project on crypto
